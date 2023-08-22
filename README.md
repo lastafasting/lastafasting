@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @lastafasting - https://lasta.app/
+- 👋 Hi, I’m @lastafasting
   
 
